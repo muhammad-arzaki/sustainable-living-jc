@@ -1,1 +1,1 @@
-# sustainable-living-jc
+# Sustainable Living JC
